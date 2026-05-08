@@ -1,4 +1,4 @@
-
+Bear for macOS elite Workflow: focus mode & quick search is the best Bear for macOS workflow, featuring focus mode and quick search. Safe, efficient, and optimized for macOS users.
 
 
 
